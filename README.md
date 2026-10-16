@@ -1,4 +1,4 @@
-# Hey, I'm Icon 👋
+# Hey, I'm Lakshmi Shivani 👋
 
 🎓 Computer Science student | 🤖 AI/ML | 💻 Software Development
 
